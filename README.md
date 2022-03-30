@@ -1,2 +1,2 @@
 # studydevelop
-em desenvolvimento :D
+apenas uma ideia inacabada :(
